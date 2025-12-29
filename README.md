@@ -8,3 +8,14 @@
          💫 MLP:FIM,MLP:EG, Gumball, A webbing journey. 🧳
 
  please int carefully 18+. Account made for Ponytown Purposes O N L Y !
+
+📌 things about me! ;
+
+       •im Aroace and Ally. I support LGBTQ/LGBTQIA.🏳️‍🌈
+       • My birthday is in 9th March.💐
+       • My favorite colors are Peach🪷,Mint/Turquoise/Azur🩵, Sage green 🌱and Coffee brown☕.
+        
+Hope you have a great journey exploring my profile! Bye friends =D
+        
+
+        
