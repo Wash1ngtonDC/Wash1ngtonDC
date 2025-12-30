@@ -5,7 +5,7 @@
 <img width="140" src="https://komarev.com/ghpvc/?username=githubusernamehere&color=f58d6f" alt="views count"> <img width="140" src="https://komarev.com/ghpvc/?username=githubusernamehere&color=65d7c4" alt="views count">
  fandoms im in!;
 
-         💫 MLP:FIM,MLP:EG, Gumball, A webbing journey. 🧳
+         💫 MLP:FIM,MLP:EG, Gumball,Baldi's Basics, A webbing journey. 🧳
 
  please int carefully 18+. Account made for Ponytown Purposes O N L Y !
 
@@ -14,7 +14,7 @@
        •im Aroace and Ally. I support LGBTQ/LGBTQIA.🏳️‍🌈
        • My birthday is in 9th March.💐
        • My favorite colors are Peach🪷,Mint/Turquoise/Azur🩵, Sage green 🌱and Coffee brown☕.
-        
+       • Im from  Western Romania. 🇷🇴
 Hope you have a great journey exploring my profile! Bye friends =D
         
 
